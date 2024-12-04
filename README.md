@@ -5,6 +5,8 @@
 - 📫 How to reach me email me
 - 😄 Pronouns: END WOKENSSSS
 - ⚡ Fun fact: i dont like fun facts
+- 💀 Im built like the galaxy note 7
+
 
 <!---
 HenryTheAddict/HenryTheAddict is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
