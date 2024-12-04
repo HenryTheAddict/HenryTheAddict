@@ -2,8 +2,8 @@
 - 👀 I’m interested in skibidi toilet
 - 🌱 I’m currently learning diddy party
 - 💞️ I’m looking to collaborate on diddy party
-- 📫 How to reach me email
-- 😄 Pronouns: she / them
+- 📫 How to reach me email me
+- 😄 Pronouns: END WOKENSSSS
 - ⚡ Fun fact: i dont like fun facts
 
 <!---
