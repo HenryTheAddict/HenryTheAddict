@@ -1,6 +1,6 @@
-Skibidi Sev Skbidi sev no diddy tho...
+Skibidi Sev Skbidi sev no  tho...
 
-Currenty working on Chatser as the lead designer.
+Currenty working on PhoneGussr as the lead designer.
 
 Target launch is 2025.
 <!---
